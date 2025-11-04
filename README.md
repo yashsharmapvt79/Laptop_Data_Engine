@@ -185,7 +185,7 @@ The study not only helps consumers make informed purchasing decisions but also a
 
 **Yash Sharma**  
 Student and Data Enthusiast  
-GitHub: [github.com/YashSharma](https://github.com/YashSharma)
+GitHub: [github.com/YashSharma](https://github.com/yashsharmapvt79)
 
 ---
 
